@@ -1,3 +1,3 @@
-linktr.ee/Maksi12GM
+https://linktr.ee/Maksi12GM
 
 
