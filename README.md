@@ -1,3 +1,3 @@
- Hi, I’m Maksi12GM
+linktr.ee/Maksi12GM
 
 
